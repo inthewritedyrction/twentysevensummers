@@ -2171,3 +2171,1307 @@ Then she wrote the first item.
 *1. Rome. Buy train tickets from Santa Maria Novella the day she lands. Two nights. Window seats.*
 
 Lena read it over once and didn't cross it out. She left the rest of the page empty and put the ledger back under the cushion, where Esme had never once thought to look. Then she turned off the lamp and went to bed to fight her for the blankets.
+
+# 7. transatlantic flight
+
+*clarke — the eighth spring*
+
+Clarke had been on the same page of his *Storia dell'arte moderna* notes for twenty-three minutes when the AIM window started flashing at the bottom of his laptop screen.
+
+He clicked it immediately.
+
+**EWalker2988:** help
+
+A second message appeared before he could answer.
+
+**EWalker2988:** I think I hate my valedictorian speech
+
+His apartment had been taken over by exams sometime around the beginning of May. Books covered most of the kitchen table. Index cards had migrated onto the windowsill, the floor beside his sofa and once, somehow, into the bathroom. A stack of gallery catalogs waited near the front door for him to return to work tomorrow, and the notes currently losing a fight for his attention were supposed to help him explain Caravaggio in two weeks.
+
+Instead, he typed:
+
+**CReed89:** thought you hated it yesterday
+
+**EWalker2988:** yesterday I hated the ending
+
+**EWalker2988:** today I hate all of it
+
+**EWalker2988:** growth
+
+It was a little after one in the morning in Florence, which meant Esme was probably at her desk in Atlanta before dinner. Six hours had become easy math over the last two years. He knew when she got out of school, which afternoons Michael expected her at the restaurant, and how late she could stay on Skype before somebody downstairs started yelling that she had school in the morning.
+
+Esme knew his Tuesday lectures finished at four and that Thursday nights at the gallery usually ran late. She knew Wednesday mornings were terrible for him because his first lecture started at eight-thirty, and she knew better than to call while he was working unless she wanted to spend half the conversation listening to him whisper from a storage room.
+
+By May 2007, they had developed a system without ever discussing one. AIM was easiest if they were both already on their computers. Skype was for when one of them wanted to actually see the other. Text messages were short and usually meant: get online, call me when you can, or whatever piece of information apparently couldn't wait until the other person reached a computer. Clarke could have drawn the whole thing as a chart. He had never once considered telling her that.
+
+Apparently, the valedictorian speech qualified as an emergency.
+
+**CReed89:** send it
+
+The little typing notice appeared beneath Esme's screen name, disappeared and came back.
+
+**EWalker2988:** absolutely not
+
+Clarke waited.
+
+His silver Motorola buzzed against the table less than a minute later.
+
+**Esme:** Check your email.
+
+He opened the attachment. The speech was twelve pages.
+
+Another text arrived while the document loaded.
+
+**Esme:** don't say shit
+
+Clarke picked up the phone and thumbed out a reply on the keypad.
+
+**Clarke:** Twelve pages?
+
+He put the Motorola back beside the laptop. A few seconds later it buzzed again.
+
+**Esme:** fuck you reed
+
+Clarke started reading.
+
+Esme's voice was obvious within the first paragraph. She opened with a story about losing a bet freshman year and somehow managed to make the principal, the future and SpongeBob exist on the same page without any of it sounding ridiculous. Most people would probably tell her to cut the SpongeBob reference.
+
+Clarke hoped she kept it.
+
+He made it halfway through before the photograph tucked between his desk lamp and the wall caught his attention.
+
+It had been taken at Esme's seventeenth birthday.
+
+He had noticed it while loading the pictures onto his computer the morning after the party. The PowerShot had given him three versions of the same group, and the second one should have been deleted with the other mistakes. He kept it instead. He had the prints made at the shop in town and put them in the Cartier-Bresson, where nobody looked but him, and when he unpacked box fourteen in Florence last August, the envelope was exactly where he'd left it, the three prints still in order. Lena had packed that box. Lena had written *prints 2005* on the sheet on his closet door in her neat handwriting and said nothing about it. Clarke had looked at the sheet for a long time and said nothing back. That seemed to be the arrangement.
+
+The photograph had been sitting by the lamp ever since.
+
+His Motorola buzzed again.
+
+**Esme:** well???
+
+Clarke returned to the speech.
+
+**Clarke:** You misspelled definitely twice.
+
+Her response came quickly enough that she must have already been holding the phone.
+
+**Esme:** I hate you
+
+He found both mistakes, corrected them and sent the file back by email.
+
+The Skype call came through before he could reopen his notes. Clarke accepted it, and a few seconds later Esme appeared in a grainy little video window beneath the usual terrible lighting from her bedroom. Her curls were pulled into a loose ponytail, and she wore one of the Class of 2007 T-shirts her school had been selling since sometime after spring break. The lamp behind her threw everything orange. Clarke had told her a dozen times to turn it toward the wall. She never did, and he had stopped saying so, because the orange had become part of what she looked like at this hour.
+
+"You didn't read all of it."
+
+"I did," Clarke said, leaning back in his chair. "You're not Tolstoy, Walker."
+
+Esme rolled her eyes and shifted farther back in her chair. "Okay, so is it bad?"
+
+"It's twelve pages and you only have ten minutes."
+
+"I talk fast."
+
+"You'll have to breathe eventually."
+
+Esme groaned and dropped her forehead against the desk.
+
+A stack of graduation announcements sat behind her computer beside college envelopes that had been accumulating for months. Some were thick. A few of them were thin. Clarke had stopped asking where each one was from after Esme started answering every question with *I don't know yet.*
+
+One graduation announcement had arrived at Villa Reed almost three weeks ago for Clarke's parents and Lena's mother. Lena had received her own, and Esme mailed another directly to Clarke even though all three pieces of paper had crossed the Atlantic only to end up within a few miles of one another.
+
+His was propped beside the books on his kitchen counter.
+
+**ESMERELDA GIANELLA AMATTO-WALKER**
+
+**CLASS OF 2007**
+
+**Tuesday, May 22, 2007**
+
+One day before his twentieth birthday.
+
+"You still alive?" he asked.
+
+"Debatable."
+
+Clarke reached for his notes and drew a line through the paragraph he had been pretending to study. "Cut the middle story about sophomore year. Keep the first one."
+
+Esme finally lifted her head. "Really? The SpongeBob thing too?"
+
+"Especially that."
+
+She sat up and pulled the document closer.
+
+Clarke had spent enough time with Esme through a computer screen to recognize when the connection froze. Sometimes her face stopped moving while her voice kept going. Other times the picture blurred until her features broke into squares, followed a few seconds later by Esme complaining that Italy had personally ruined the internet. He had a folder of screenshots from the bad nights that she didn't know about, mostly of her mid-sentence and half-pixelated, mouth open, one hand in the air. They were terrible pictures. He hadn't deleted any of them.
+
+Tonight, the picture remained clear while she reread the first page.
+
+"You have school tomorrow," Clarke reminded her. "You should sleep soon."
+
+"Senior checkout barely counts as school." Esme waved her hands around. "Go study, college boy. I'm releasing you."
+
+Clarke reached for the textbook he should have been reading an hour ago. Esme had almost ended the call before she stopped.
+
+"Reed?"
+
+"Yeah?"
+
+"You'll watch it, right?"
+
+He knew exactly what she meant. Her school was selling DVDs of the graduation ceremony, and Esme had already promised to mail his copy as soon as they came in.
+
+"Of course."
+
+"Okay. Night."
+
+"Night, Walker."
+
+The Skype window disappeared, leaving Clarke to flip through four more pages of notes before finally giving up and checking his inbox.
+
+Ginevra had responded again.
+
+**Subject: ATLANTA — DO NOT TELL MY DAUGHTER**
+
+The email chain started six days ago when Ginny asked whether his June exams made Atlanta completely impossible. Since then, she had sent two possible itineraries, the graduation schedule and three separate warnings that Esme could not, under any circumstance, find out.
+
+The better flight left Florence early Monday morning, May 21, connected through Paris and landed in Atlanta that afternoon. His return left Thursday, May 24, giving him two full days in Georgia before putting him back in Florence with enough time to get his head straight before his first exam.
+
+Enough time, theoretically.
+
+Marco had already agreed to cover the review session Clarke would miss and send over his notes. Clarke had finished the gallery cataloging work due that week yesterday and moved another assignment up so it wouldn't hang over him in Atlanta. He could study during both flights, at the hotel, and spend most of the flight home reading if he had to.
+
+He had been rearranging his life around forty-eight hours in Georgia for almost a week and still hadn't responded to Ginevra.
+
+Clarke clicked **Print**.
+
+The printer near his kitchen table whined as the itinerary came out one sheet at a time.
+
+Once it finished, he folded the pages and tucked them inside his textbook.
+
+Ginevra had nothing to worry about.
+
+He had already bought the ticket that afternoon.
+
+#
+
+Sunday dinner at Villa Reed had changed since Clarke started university.
+
+He no longer lived there full-time, so Olivia cooked too much whenever he came home and started packing leftovers before he had finished eating. Aurelio asked about classes without asking about grades. Clarke's old bedroom still looked almost exactly as he'd left it, although his mother had started using one corner to store restoration books after realizing he only slept there a few nights a month. The corkboard was still on the wall. It still had nothing on it but pins.
+
+Lena usually appeared halfway through dinner whether anyone invited her or not.
+
+Tonight, her shoes were already beside the door when Clarke arrived.
+
+She was eighteen now and finishing school herself, which meant every adult in the Cavalcanti family had spent the spring asking what came next. Unlike Esme, Lena actually had an answer. She had been talking about the vineyard seriously for years, and lately Aurelio had started including her in conversations he used to save for the adults. Clarke had been home for one of Aurelio's meetings at Christmas and watched Lena correct a supplier's figures without raising her voice. The supplier had thanked her. Clarke still wasn't sure the man knew what had happened to him.
+
+None of that stopped her from stealing food off Clarke's plate.
+
+"I'm flying to Atlanta tomorrow," he said once everybody had settled down.
+
+Aurelio stopped cutting into his chicken. Olivia lowered her fork while Lena reached over and took one of Clarke's potatoes.
+
+His father recovered first. "Tomorrow?"
+
+"Seven in the morning. First exam isn't for another two weeks." Clarke pulled the folded itinerary from his pocket and set it beside his plate. "Florence to Paris, then Atlanta. I'm back Thursday."
+
+Olivia unfolded the pages. "You booked this already?"
+
+Clarke nodded. "Last week."
+
+She read the first page, then turned it over. "Does Esme know?"
+
+Clarke shook his head.
+
+Lena stopped chewing.
+
+"No." Clarke pointed his fork at her. "I'm not telling her."
+
+She went back to her plate.
+
+Aurelio poured himself more wine. "Then why are you telling us now?"
+
+"Because Mom would kill me if I crossed the Atlantic without saying anything."
+
+"She would," Lena said with her mouth full.
+
+Olivia ignored them. "Where are you staying?"
+
+"Same hotel as Ginny. She added me to the reservation and she'll be there when I check in. She's sending a car to the airport."
+
+His mother continued reading.
+
+"Passport?"
+
+"Yes."
+
+"Travel insurance?"
+
+"Yes."
+
+"You have the address?"
+
+"Mom."
+
+Olivia finally set the itinerary down. Lena stole another potato and Clarke moved the plate farther away.
+
+Nobody asked why he was going.
+
+He appreciated that.
+
+After dinner, Olivia packed enough food into his bag to suggest Atlanta had never discovered groceries. Aurelio disappeared into the study and returned with the universal adapter Clarke left at the villa during Christmas. Clarke accepted it because arguing only increased the likelihood that his father would find three more things he had forgotten.
+
+Lena found him near the front door while he put on his shoes. "You're going to make her cry."
+
+"Hopefully not."
+
+"She cried when Valentina and Giuliana surprised her for prom pictures." Lena rolled her eyes. "She's definitely going to cry."
+
+"That was…" Clarke exhaled. "Different."
+
+Lena reached over and adjusted the strap on his camera bag, which had twisted near his shoulder. She had been doing that since they were twelve, and she did it the way she did everything for him, without looking up, as if the strap had asked. Clarke noticed she was looking at the strap a little longer than it needed.
+
+"Hug her for me?"
+
+"Obviously."
+
+Lena squeezed her arms around him before heading back toward the dining room. Halfway there, she turned around.
+
+"Ask her when she's coming."
+
+Then she was gone, and Clarke stood in the doorway with one shoe on, understanding that Lena had been waiting all night to say that and had decided to say it to his back.
+
+Clarke drove home with Olivia's containers sliding around on the passenger-side floor every time he took a corner.
+
+His Motorola buzzed at a red light.
+
+He left it where it was.
+
+Whatever Esme wanted could wait until he parked.
+
+#
+
+Monday, May 21, 2007, started before sunrise.
+
+The AIM window Esme had left open overnight was still sitting on Clarke's laptop when he woke.
+
+**EWalker2988:** rewrote the ending again
+
+**EWalker2988:** don't worry I'm sure by Tuesday I will have destroyed the whole thing
+
+The timestamp said 11:42 p.m. Atlanta time.
+
+Clarke answered while his coffee brewed.
+
+**CReed89:** dramatic
+
+He set his away message, shut down the laptop, and packed it into his backpack.
+
+The film camera sat on the bookshelf over his desk where it had been since August, still half wrapped in the sweater from box nine. Clarke looked at it for a second with his keys in his hand. He hadn't loaded it in two years. He didn't load it now. He took the PowerShot, because the PowerShot was practical, and locked the door behind him.
+
+Peretola was already busy when he arrived. His camera bag sat beneath one arm while the backpack on his shoulders carried the laptop, two textbooks, a change of clothes and enough index cards to ruin an otherwise perfectly good trip.
+
+The departure board changed gates once before boarding began. Clarke bought coffee that tasted worse than what he made at home and reviewed modern art notes while a family argued nearby about luggage. By the time the flight to Paris boarded, he'd turned off his phone and buried it in the front pocket of his backpack.
+
+The first leg was short enough that Clarke barely made it through one chapter before they started descending.
+
+Charles de Gaulle took longer.
+
+He followed signs through the terminal with his camera bag knocking against his hip, passed through the security checks for the Atlanta connection, and found his gate with enough time to turn his Motorola back on.
+
+Three messages arrived.
+
+One from Olivia asking him to call.
+
+One from Ginevra telling him the driver would be waiting in Atlanta.
+
+One from Esme.
+
+**Esme:** yearbook day is stupid. I've signed my name 600 times.
+
+Clarke considered the message.
+
+He could answer.
+
+He almost did.
+
+Then he pictured her seeing a text come through at an hour when he was usually in a lecture hall in Florence, doing the six-hour calculation she had gotten too good at, and asking questions.
+
+The Motorola went back into his pocket.
+
+He would let her complain about it to his face later.
+
+The Atlanta flight began boarding twenty minutes afterward.
+
+Clarke turned the phone off again before getting on.
+
+Ginevra had paid extra for the window seat despite Clarke telling her not to, so he ended up pressed beside the wall with his camera bag under the seat and *Storia dell'arte moderna* open across the tray table once they were in the air.
+
+For the first two hours, he actually studied.
+
+Then lunch came and a man fell asleep with his mouth open.
+
+Clarke made it through another chapter before the words stopped sticking.
+
+He closed the textbook. There wasn't much to photograph through the window. Clouds, part of the wing and more clouds beyond that.
+
+He took one anyway.
+
+Eight years of friendship had produced thousands of pictures. He had them in folders by summer on two hard drives and in envelopes by year in a drawer, and he could have told anybody who asked roughly how many of them had Esme in the frame. Nobody had asked. The number was embarrassing.
+
+Last summer had added another few hundred.
+
+Esme at eighteen looked different from seventeen mostly because she insisted she didn't. She spent the seventh summer filling out college applications on the terrace, complaining about SAT scores and threatening to throw Ginevra's university brochures into the vineyard. Clarke started his second year in Florence the September after she went back to Atlanta. Esme started senior year.
+
+The seventh summer had also been the first one after the photograph.
+
+Neither of them mentioned that.
+
+They didn't mention the cheek kiss either.
+
+Esme still slept in Lena's room. Clarke still showed up with his camera. They went to the same cafés, argued over food and wasted afternoons at Villa Reed exactly the way they had before. The only thing that had moved was a chair. On her last night, Esme had come out to the terrace before anyone else and sat down next to him without anybody making her, and Clarke had passed her the bread and kept his face exactly where it was, and Lena, across the table, had not said one word. Clarke had replayed the whole dinner on the drive back to Florence and still couldn't decide which of them had arranged it.
+
+Then August came.
+
+Esme went back to Atlanta.
+
+Summer became Skype.
+
+Villa Reed became AIM.
+
+Clarke leaned his head back and tried to rest. He slipped his hands into his hoodie pocket, where Esme's graduation announcement sat with his passport and boarding passes. He had brought it despite knowing exactly where he was going.
+
+**Tuesday, May 22, 2007.**
+
+Tomorrow.
+
+He would turn twenty the day after.
+
+Nineteen had mostly happened without Esme physically being there. His first apartment. The gallery job. Her senior year. Prom. SAT scores. College applications. She had mailed him a picture from prom because he complained the one she sent to his phone was too small to see properly. It came in an envelope with Lena's handwriting on a sticky note inside, because Esme had sent it to the villa first. *Thought you'd want this one too*, the note said, and nothing else.
+
+A few months earlier, Esme had spent almost an hour on Skype showing him three nearly identical dresses for some school event and getting irritated every time he said they were all blue.
+
+Apparently they had been different shades.
+
+Clarke still didn't care. He had looked at all three for the full hour anyway.
+
+Something else had been missing from their conversations that spring, although Clarke hadn't thought much about it until the plane went quiet.
+
+Dates.
+
+By May, Lena usually knew Esme's arrival down to the flight number. Esme would have started complaining about packing by now, Ginevra would be arguing with Michael over how long she planned to stay, and somebody at Villa Reed would already be discussing whether the guest room needed anything, even though Esme hadn't slept there in years. This year the only thing they knew for sure was that school started in August for Esme and September for Clarke.
+
+Lena hadn't mentioned her list once.
+
+Clarke had known her for as long as he could remember. In all that time, Lena had never not mentioned the list.
+
+*Ask her when she's coming.*
+
+Clarke reopened his textbook. The title of the chapter finally made sense to him again after he read the first paragraph twice. He studied until the captain announced their descent into Atlanta.
+
+Only then did he put the textbook away.
+
+# 8. glittery signs
+
+*esme — the eighth spring*
+
+"Just one more, tesoro."
+
+Esme had heard that six pictures ago. She stood beneath the oak tree in her father's backyard with the royal blue graduation gown sticking to the backs of her legs while Ginevra adjusted one of the honor cords around her neck. Atlanta had decided to be hot before noon, and the polyester trapped every bit of it. The oak gave them enough shade to keep everybody from squinting in the pictures, but it did nothing for the humidity already pulling at the curls around Esme's temples.
+
+"Mom, the first twenty pictures still exist."
+
+"Twenty is dramatic." Sarah lowered the silver digital camera long enough to check the screen. She had volunteered to take pictures after Ginevra spent the first ten minutes trying to photograph Esme, fix Esme and complain about the photographs at the same time. "I think we're at fourteen."
+
+Esme pointed at her. "Traitor."
+
+Sarah laughed and lifted the camera again. Michael disappeared inside under the excuse of checking the food for later, although Esme suspected her father simply knew when to leave a backyard occupied by his ex-wife, his daughter, and the woman he had been dating for the last six months. He had spent twenty-two years working kitchens and could read tension before anybody else admitted it existed.
+
+Sarah had handled Ginevra better than Esme expected. She showed up carrying coffee for everybody, complimented her dress without overdoing it, and never once mentioned that they were standing in a backyard where Ginevra had once lived. Ginevra's rosemary still grew in the clay pots by the back steps. Michael had never moved them and never mentioned them, and he watered them on Sundays with the same green can he used for everything else. Sarah's contribution to the graduation decorations waited beneath the covered patio: blue-and-silver balloons tied to chairs beside folding tables Michael rented for the party that evening. She had asked Esme what kind of cake she wanted, learned Michael had already ordered one and backed away without turning it into a competition. Ginevra had thanked her for the balloons, which was more progress than Esme expected before breakfast.
+
+"Turn a little," her mother said.
+
+Esme did. The camera flashed again.
+
+"Last one."
+
+"You said that already."
+
+"This one is with your father."
+
+Michael stepped through the back door at exactly the wrong time, took in Esme's expression and immediately understood what had happened. "Leave that girl alone, Ginny."
+
+"She graduates once."
+
+"I know. I paid for half of it."
+
+Ginevra ignored him and waved Michael beside Esme. Her dad had actually dressed up. Dark slacks, pressed white shirt, no chef coat anywhere in sight. Seeing him without something kitchen-related on his clothes made the day feel more serious than the cap and gown had managed so far. Esme tucked herself beneath his arm while Sarah positioned the camera.
+
+Michael leaned closer. "How many?"
+
+"Fourteen."
+
+"Damn."
+
+"Thank you."
+
+The picture caught both of them laughing, and Ginevra checked the screen over Sarah's shoulder before finally appearing satisfied.
+
+Auntie Saundra had arrived twenty minutes earlier with Nia, Jordan and Micah. The three of them took over one side of the patio almost immediately. Jordan was complaining as usual. Micah had already stolen a piece of bacon from the kitchen and gotten caught. Nia, home from her first year at Spelman, wore one of her college T-shirts beneath an open cardigan despite Ginevra's earlier suggestion that everyone dress nicely for photographs. Esme appreciated the commitment.
+
+Sarah stood near the patio with her purse over one shoulder while everyone reorganized for the next picture. She had been careful all morning about where she placed herself, staying close enough to help without appearing in anything unless somebody asked. Esme had noticed because Esme noticed everything, and she was tired of noticing this particular thing. She had spent her whole life watching people stand at the edge of a picture deciding whether they were allowed in it.
+
+"Sarah, come here."
+
+Sarah paused. "Me?"
+
+"So we can get one before we leave."
+
+Michael's hand shifted slightly against Esme's shoulder. Ginevra said nothing, but her attention moved from Sarah to Esme and stayed there long enough for Esme to know she understood exactly what was happening.
+
+Sarah came anyway.
+
+The four of them had no natural arrangement. Michael ended up beside Sarah. Ginevra stood on Esme's other side. Esme stayed in the middle because apparently seven years of divorced-parent logistics had prepared her for this exact photograph. Auntie Saundra took the camera from Sarah and told everybody to act like they liked each other.
+
+"Saundra," Michael warned.
+
+The flash went off before Ginevra could respond, which saved Esme from finding out what her mother might have said. The minute the photo was taken, her father and Sarah disappeared, leaving Saundra to deal with Ginevra by herself.
+
+Nia came across the patio carrying a bobby pin between her teeth and pulled the loose curl away from Esme's eye. "You nervous?"
+
+"I'm giving a speech in front of my entire graduating class."
+
+"So yes."
+
+Esme reached for the coffee Sarah had abandoned on the patio table, but Nia moved it first. "You'll sweat through that gown."
+
+"I am already sweating through the gown."
+
+Jordan called from the driveway that Michael was threatening to leave without everybody, which finally got the backyard moving. Micah grabbed two bottles of water, then followed Saundra toward the cars. Ginevra started counting bags out loud. Michael yelled that nobody needed three cars for the number of people going.
+
+Esme slipped away long enough to retrieve her purse from a patio chair. Her Motorola sat inside beside three folded note cards she had rewritten so many times the edges had started softening. The speech itself had been twelve pages when Clarke first read it and nine when she finally stopped touching it last night. She could still hear him telling her to cut the middle story about sophomore year.
+
+Her phone buzzed.
+
+**Clarke:** Don't trip.
+
+Esme typed **die**, shoved the phone into her purse and followed everybody toward the driveway.
+
+Ginevra caught up beside her before she reached Michael's car. "Do you have your passport?"
+
+Esme almost stopped walking. It was the question. For seven years her parents had asked it twice a year, once on each side of the ocean, as reliably as a bell. She had never once minded it until now.
+
+"What?"
+
+"For this summer. I left mine in the hotel safe, but I thought we could check yours before I fly home. You know how you are."
+
+Graduation suddenly seemed easier.
+
+"Can we get through today first? I promise I'll find it when we get back."
+
+"Fine," her mother said, kissing her temple. "Today."
+
+Esme climbed into the car before anybody else could bring up July. Her passport was upstairs in the second drawer of her desk.
+
+She knew exactly where it was.
+
+#
+
+The auditorium smelled like perfume, flowers and several hundred people dressed too nicely for a Tuesday afternoon. Esme sat in the second row between Jules Baker and Marissa Lucas while the last graduates filed through the side doors. Families filled the seats behind them with bouquets, cameras and younger siblings who had already lost interest. Somebody several rows back had started crying before the ceremony even began. Two rows ahead, a boy had painted **HI MOM** across his cap in silver letters large enough for the entire auditorium to see.
+
+Her own cap was untouched because Ginevra had suggested rhinestones and Esme refused on principle.
+
+The graduation program sat folded in her lap beneath her note cards. **CLASS OF 2007** stretched across the front in blue lettering, and her name appeared twice inside: once under Valedictorian and again beneath Senior Academic Honors. Both times it said Amatto-Walker, which was the only place she could think of where both families' names had ever had to share one line.
+
+Her guidance counselor had spent most of April congratulating her before asking the same question every other adult did.
+
+*Where are you going?*
+
+Esme still didn't have an answer.
+
+Four schools had accepted her. Two were in Georgia. One was farther north. One sent the nicest packet and somehow made the actual campus feel less interesting every time she looked through it. Ginevra continued mentioning universities in Florence as though an ocean were a reasonable commute. Every acceptance had been exciting for approximately ten minutes before becoming another envelope on Esme's desk.
+
+She had lists, of course. Tuition. Distance. English programs. Campus size. Dorms. How easy it would be to get home to Atlanta. How irritated each option made her mother. How much Michael tried not to influence her when she asked what he thought. She had made the lists on a yellow legal pad, in columns, and she knew exactly where she had learned that, and she did not like thinking about it, because it made her want to call Lena, and calling Lena meant answering the question about summer.
+
+None of it had produced an answer.
+
+Jules leaned toward her while the orchestra finished tuning. "You got my twenty?" He nodded toward the stage. "For when you choke midway?"
+
+The bet had started freshman year after Esme announced, with fourteen-year-old confidence, that she planned to graduate first in their class and give the valedictorian speech. Jules told her she would get distracted by Italy and finish somewhere around fifth. Twenty dollars had been on the line ever since.
+
+Esme held out her hand. "Pay early."
+
+"Absolutely not."
+
+The principal stepped to the podium before Jules could say anything else, and the ceremony moved the way school ceremonies always did. Too many names. Too many adults talking about futures as though every eighteen-year-old in the room had already selected one. Teachers lined the edge of the stage in dark robes. Parents shouted after names despite being asked twice not to. Marissa whispered that her grandmother had already cried through the processional.
+
+Esme listened until she realized she had twisted the edge of the program around one finger. Her Motorola buzzed against her leg, so she pulled it from beneath the gown and shielded the screen with the program.
+
+**Clarke:** Breathe.
+
+Florence was six hours ahead. He should have been somewhere between university and the gallery, probably carrying his camera and pretending he wasn't two weeks away from exams.
+
+Esme typed **I am breathing asshole**, shut the phone off and tucked it into her purse.
+
+A few minutes later, the principal called her name.
+
+"And now, our valedictorian, Esmerelda Gianella Amatto-Walker."
+
+Applause filled the auditorium as Esme stood and stepped around Jules. Her legs worked, which was encouraging. She crossed the short distance to the stage, accepted the principal's hand and moved behind the podium. The lights erased most of the audience, leaving only shapes in the first several rows and little else.
+
+"Jules Baker owes me twenty dollars."
+
+The auditorium laughed before she finished the sentence, and somewhere behind her Jules shouted something she couldn't make out.
+
+Esme adjusted the microphone. "I accept cash only. You no longer have to write checks to my mom."
+
+Jules groaned loudly enough to reach the stage, which helped. Her hands stopped shaking.
+
+"When Mr. Harrison told me I had to give this speech, I thought being valedictorian was supposed to mean I knew something the rest of you didn't. I apparently do not."
+
+A few teachers laughed. Esme moved the first note card beneath the second.
+
+"For most of high school, every decision came with a next step. Take this class so you can take that one. Get this grade so you can apply here. Join the club. Study for the SAT. Write the essay. Send the application. Somebody always knew what came after."
+
+She had cut almost three pages since Clarke first read the draft. He had been right. The middle had been terrible.
+
+"Then senior year comes, everybody starts asking where you're going, what you're majoring in and what you want to do for the rest of your life, and somehow *I don't know* stops feeling like an acceptable answer."
+
+That part was new. She had written it after midnight.
+
+"I got into college. I got into four, actually."
+
+Applause moved through the room.
+
+"I still don't know where I'm going."
+
+The laughter came slower this time, followed by several graduates clapping and somebody in the front row saying, "Same."
+
+"Which is inconvenient because apparently graduation is when you're supposed to stand in front of everybody and act like you figured something out."
+
+She glanced toward the teachers. "Sorry."
+
+Mr. Harrison raised both hands as though the problem belonged to somebody else.
+
+"I spent four years trying to do everything right. Straight A's. AP classes. Clubs. College applications. All of it. And I'm standing here with a diploma, four acceptance letters and absolutely no idea what my life looks like in August."
+
+The sentence came out easier than it had during practice. Maybe because it was true.
+
+"So I don't have advice about following your dreams because some of us are still trying to figure out what those are. I don't have a five-year plan. I barely have a plan for next week."
+
+Alexis Harlow shouted, "PREACH," from the row with the swim team, and the graduates laughed.
+
+Esme checked the last card. "What I do know is that we made it here. Whatever comes next, we get to change our minds. We get to be bad at something before we're good at it. We get to pick something and realize later that it isn't what we wanted. We get to figure it out. We get to…"
+
+Movement halfway up the auditorium caught her attention.
+
+Somebody lifted a royal blue poster board with silver glitter around the edges and two enormous words across the middle.
+
+**GO TINKERBELL!**
+
+Esme stopped because the handwriting was terrible, and she knew that handwriting.
+
+Clarke Reed sat halfway back beside Ginevra with one end of the ridiculous sign balanced against his knee.
+
+He was supposed to be in Florence.
+
+For a second, Esme forgot there were hundreds of people in front of her. She forgot Jules and the faculty along the wall and the principal sitting several feet away. She forgot the next line too, which became obvious when the auditorium stayed quiet long enough for somebody in the graduate section to laugh.
+
+Of course it was glitter. Seven years, and he had crossed an ocean to hold the scarf up at her.
+
+Clarke lifted the sign a little higher. Silver caught the stage lights, and when Esme continued staring at him, he pointed toward her note cards.
+
+Right. Speech.
+
+She glanced down and found absolutely nothing useful.
+
+"Sorry," she said into the microphone.
+
+The room laughed. Ginevra was covering her mouth beside Clarke, which meant her mother was involved and would be dealt with later.
+
+Esme abandoned the cards.
+
+"So, yeah. We don't know what's coming. Some of us are excited. Some of us are terrified. Most of us are probably both."
+
+Clarke lowered the sign to his lap while Esme kept going.
+
+"We've spent years being told to prepare for the future like it's a test somebody already wrote. I don't think it works like that. We're going to make choices. Some will be right. Some probably won't. We'll change our minds, disappoint people, surprise ourselves, and hopefully end up somewhere that makes sense eventually. So congratulations, Class of 2007. We made it through high school. And Jules?"
+
+She leaned closer to the microphone.
+
+"My twenty dollars."
+
+The graduates stood as Esme asked them all to rise.
+
+Jules paid during the recessional. He shoved a folded twenty into Esme's hand while they waited to walk out and told her she was irritating, so she pocketed it without argument.
+
+The rest of graduation disappeared beneath people. Teachers hugged her. Parents she barely knew congratulated her. Marissa's mother took three pictures because the first two apparently weren't good enough. Alexis cried hard enough to ruin her mascara and promised Esme that she'd keep in touch despite the fact that she was spending a gap year backpacking through Europe with their friend Celeste Davenport. Mr. Harrison told Esme the speech was better without whatever she had planned after losing her place, which felt rude considering how long she had worked on it.
+
+She answered the same question seven times before making it out of the main aisle.
+
+No, she had not chosen a school yet. Yes, she would decide soon. No, she wasn't worried.
+
+The last answer became less convincing every time.
+
+Nia found her near the lobby and wrapped both arms around her hard enough to crush the folded program between them.
+
+"You did that."
+
+"My ribs."
+
+Nia released her but kept both hands on Esme's shoulders. "You really stood up there and told all those people you ain't got no plan."
+
+"I have several plans."
+
+Saundra called Nia from across the lobby before Esme could answer. Esme kept moving because the glitter sign had disappeared, and so had Clarke. For several minutes, she wondered whether academic pressure had finally cracked something important in her brain and she had invented him.
+
+Then she found Ginevra near the auditorium doors talking to Sarah.
+
+Actually talking.
+
+Sarah held Ginevra's camera while the two of them examined something on the screen. Michael stood nearby with one hand in his pocket, wisely staying out of whatever fragile diplomatic relationship had formed during the ceremony.
+
+Esme made it halfway toward them before Nia called after her, "He went outside."
+
+She didn't ask how her cousin knew who she was looking for, because that would only encourage her.
+
+The afternoon heat hit as soon as Esme pushed through the doors. Families had spilled across the courtyard and onto the walkways around the building. Graduates posed beneath trees. Parents held bouquets. Somebody had already lost a cap.
+
+Clarke stood near a brick wall talking to Jordan with the glitter sign tucked beneath one arm.
+
+Seeing him outside made even less sense than seeing him in the auditorium. Florence belonged behind a computer screen this time of year. Clarke belonged with Villa Reed, old stone streets and a camera somewhere against his chest. Here he was squinting in Georgia sun beside a brick wall, sweating through a shirt that was too heavy for May, and Esme's brain kept trying to put the frame back the way it was supposed to be.
+
+He wasn't supposed to be in Georgia.
+
+Jordan noticed Esme first. He said something to Clarke, clapped him once on the shoulder and walked away before she reached them. Clarke barely had time to move the sign before Esme hit him hard enough that he stepped backward. His arms came around her automatically.
+
+"You're here."
+
+"Yeah."
+
+"You lied to me." The words disappeared against his shoulder.
+
+"I said I wished I could be here."
+
+"That counts."
+
+His laugh moved through his chest beneath her cheek, the same way it had on the hill two summers ago, and Esme held on anyway. He held on a second longer than she did. Then he said, against her hair, "That one was from Lena," and held on for one more that wasn't.
+
+When she finally stepped back, silver glitter clung near the sleeve of his shirt.
+
+She pointed at it. "What the hell is that sign?"
+
+"Moral support."
+
+Esme took the poster board from him. The letters were uneven. **TINKERBELL** slanted downward because Clarke had apparently realized halfway across the board that he was running out of space. Silver glitter had been applied with no respect for moderation and was already coming off beneath Esme's fingers. She handed it back before the glitter permanently attached itself to her gown. "Your exams are in two weeks."
+
+"And?" Clarke adjusted the camera strap against his shoulder and left it there. "You thought I'd miss this?"
+
+"Clarke!" Ginevra's voice carried through the courtyard before Esme decided what to do with that.
+
+Her mother reached them quickly and pulled him into a hug, kissing both his cheeks before starting in Italian about his flight. Clarke managed to answer about half the questions before another one arrived. Michael approached slowly with Sarah beside him. Her father shook Clarke's hand, then pulled him into a brief hug.
+
+"Good to see you, son."
+
+"You too, Mr. Walker."
+
+Michael glanced at the sign and then at Esme without commenting on either, for which Esme was grateful.
+
+Sarah lifted the digital camera hanging from her wrist. "Before everybody scatters, can I get one?"
+
+Esme expected Ginevra to take over. Her mother only moved beside Michael and fixed the edge of Esme's graduation stole while Sarah took the picture.
+
+Then another.
+
+Nia and Jordan joined. Micah squeezed between Michael and Saundra. Jules appeared because apparently paying Esme twenty dollars had granted him family privileges. Marissa and Alexis got pulled in from somewhere nearby. Within thirty seconds, the carefully planned graduation picture became everybody standing wherever they fit.
+
+Clarke ended up beside Esme with his arm around her shoulders. Nia shoved the glitter sign into their hands, Sarah lifted the camera and Esme knew before the flash went off that somebody's eyes would be closed.
+
+She didn't care.
+
+Lena would have been the one. Lena was always the one. Esme thought it before she could stop herself, and then the flash went off, and the thought went into the picture with everybody else.
+
+#
+
+Michael's backyard filled before five.
+
+The neat tables Esme had left that morning disappeared beneath graduation cards, foil pans, flowers and plastic cups. Neighbors came through the gate carrying gifts. Teachers stopped by. People from the restaurant arrived after their shifts and immediately started criticizing Michael's food just to annoy him.
+
+The backyard had been part of almost every version of Esme's childhood. Birthday parties. Cookouts. Homework on the patio. Michael testing recipes on whoever happened to be around, which for most of her life had meant Esme on the back steps with a fork, rating things out of ten and being told her palate was a disgrace to the family. After the divorce, it became mostly his space, although traces of Ginevra still existed in places nobody discussed.
+
+Today everybody was there anyway.
+
+Saundra commandeered one of the tables with three women Esme had known since she was little. Nia kicked off her shoes before the sun went down. Jordan and Jules had known each other for less than four hours and were already arguing over music like they had been friends for years. Micah disappeared with several boys from Esme's class near the basketball hoop.
+
+Sarah moved between groups without attaching herself to Michael's side. Ginevra moved through the same yard without treating Sarah like an intruder. Esme counted both as wins.
+
+She changed out of the graduation gown before she melted and came downstairs in a sundress. Ginevra insisted she keep the cap for another round of photographs, so Esme shoved it onto her head crooked enough to irritate her. By the time she returned outside, "Buy U a Drank" was playing from the speakers Michael dragged onto the patio.
+
+Nia complained immediately. "Uncle Mike, you cannot have teenagers controlling the music at your house."
+
+Michael looked over from the grill. "You're nineteen."
+
+"And?"
+
+"You can leave."
+
+Nia rolled her eyes as Michael turned his attention back to Clarke. He was showing him something over the grill while Clarke stood with a paper plate in one hand, nodding the way he nodded at gallery curators, which meant he was actually listening. Every few minutes someone else stopped her before she could make her way over to them.
+
+*Congratulations. Beautiful speech. Where are you going to school?*
+
+Esme got better at answering with "Still deciding."
+
+Most people accepted that. Nonna Franca did not.
+
+She called from Florence shortly after six and congratulated Esme for approximately three minutes before asking about university. When Esme gave the same answer she had been giving everybody else, Franca reminded her that deadlines existed and indecision became less charming with age.
+
+Ginevra took the phone before Esme said something that would extend the conversation.
+
+Esme escaped toward the patio, where Clarke handed her a paper plate. "You haven't eaten."
+
+She accepted it and found exactly what she liked already sitting on it. Two wings. The corner piece of the macaroni, where the cheese went crisp against the pan. No coleslaw. A spoonful of her father's greens set off by themselves so the pot liquor wouldn't touch anything else. Clarke had been in Atlanta for barely a day. He had apparently spent eight years paying attention through a computer screen.
+
+"Thank you."
+
+Nia passed behind them carrying cups and called Esme ungrateful without knowing what she was being ungrateful about.
+
+The party spread deeper into the yard as the afternoon cooled. Jordan and Jules had moved their argument near the speakers. Sarah sat with Auntie Saundra while two of Michael's restaurant employees debated whether the macaroni had enough cheese. Ginevra explained Florence to Marissa's mother. Micah had somehow gotten control of the basketball despite still being dressed nicer than everybody playing with him.
+
+Clarke followed Esme down the patio steps. "This is weird."
+
+Esme checked her plate. "The macaroni?"
+
+"Your house."
+
+"It's a house."
+
+"I've only ever seen parts of it."
+
+She understood. The kitchen behind her during Skype calls. The wall beside her desk. The oak tree in photographs. Michael walking through the background. For eight years Clarke had known exactly which stairs squeaked at Villa Reed and where Lena kept snacks she didn't want Aurelio eating.
+
+He had never been here.
+
+Watching him look at it, Esme understood a little of what her first afternoon at Villa Reed must have looked like from the pool. His eyes moved around the yard without his head following. The grill. The oak. The back steps and the rosemary. Michael. Saundra. Her. He was working out who everybody was before anybody could ask who he was. She had never seen him need to.
+
+"Welcome to Atlanta."
+
+They ate beneath the oak tree where the shade finally made the heat tolerable. Clarke told her the flight was long, Paris was annoying and he had spent most of the Atlantic studying. Esme told him she nearly threw up before the speech and that the glitter sign almost finished the job.
+
+After that, the conversation stopped needing a subject. His second year. Her last week of high school. Lena finishing school. The gallery. Aurelio's vineyard. Michael's restaurant. Ordinary things that had happened separately and usually arrived through AIM windows in pieces.
+
+In person, Clarke could interrupt himself to point out something happening across the yard without the picture freezing. Esme didn't have to calculate whether it was too late in Florence before starting another story. Michael eventually called Clarke over to meet one of the restaurant managers, leaving Esme beneath the tree with her plate balanced across her knees.
+
+For most of the last year, distance had felt manageable because it was supposed to end every summer. It had always been the arrangement even though nobody ever called it one.
+
+School happened in Atlanta.
+
+Summer happened in Tuscany.
+
+Clarke and Lena existed on the other side of the year.
+
+The pattern had survived middle school, high school, Clarke leaving for university and whatever had changed between them after her seventeenth birthday.
+
+Esme had spent the spring thinking about August.
+
+She had avoided thinking about June.
+
+Clarke returned after several minutes and dropped into the grass beside her. "When are you coming over?"
+
+There it was.
+
+Esme stopped with her fork halfway through a piece of pasta before lowering it back to the plate. "I don't know yet."
+
+Clarke nodded without surprise. "After you pick a school?"
+
+"Maybe."
+
+Someone shouted Esme's name from the patio, but she ignored it.
+
+Clarke pulled at a loose piece of grass near his shoe. "Lena keeps asking. She wants to plan something before university starts."
+
+Of course she did. Somewhere in Tuscany there was a page with nothing written on it yet but the year, waiting on a flight number. Esme didn't know that for certain. She knew Lena.
+
+Esme pressed her thumb against the edge of the paper plate. "Tell her I'll call her."
+
+"Okay."
+
+Clarke reached for his camera when Michael started yelling across the yard that he needed everybody near the cake, and Esme stood with him.
+
+He believed her. Seven summers had made Tuscany feel less like a decision and more like a date on the calendar.
+
+Clarke's glitter sign leaned against the patio railing where somebody had abandoned it.
+
+By the time Michael cut the cake, silver glitter had migrated everywhere. It clung to the tablecloth, Nia's bare arm, the grass beneath the railing and somehow the strap of Clarke's camera. Esme watched him notice it there, look at it for a long second, and not brush it off.
+
+She found some near the hem of her dress when she went upstairs later that night.
+
+The party was still loud beneath her bedroom window. Somebody had changed the music. Michael's voice carried up from the yard whenever he wanted everyone to hear him, and Ginevra had apparently decided she was staying until the last guest left.
+
+Esme set the graduation cards on her desk beside the college envelopes.
+
+Four schools.
+
+Four versions of August.
+
+Her cap landed on top of them.
+
+She pulled the bobby pins from her hair and opened the second drawer looking for the scarf she usually slept in. Her passport sat beneath it, blue cover exactly where she knew it would be.
+
+A fleck of silver glitter had stuck to her thumb.
+
+Esme rested her fingers against the edge of the drawer for a second before closing it.
+
+# 9. peach state university
+
+*esme — the eighth fall*
+
+Michael Walker had been on Peach State University's campus for forty-seven minutes before he decided somebody needed to be fired.
+
+The elevator in Adams Hall stopped working sometime between Esme checking in downstairs and Nia arriving with the second load from the car. A handwritten **OUT OF ORDER** sign appeared across the doors while Michael was still trying to fit Esme's mini-fridge onto a blue plastic move-in cart with one bad wheel, and by the time he noticed it, two resident assistants had already started redirecting families toward the stairwell.
+
+"I paid tuition already, right?" Michael asked, reading the sign a second time.
+
+"Pretty sure."
+
+"Just checking."
+
+Nia laughed and grabbed one end of a box marked **BOOKS** before her uncle could start asking which part of the tuition bill covered functioning elevators. She was home from Spelman until the following week and had volunteered for move-in because, according to her, Esme needed somebody there who knew the difference between helping and turning a dorm room into a commercial kitchen. Jordan and Micah were somewhere outside with Auntie Saundra, which meant at least one of Esme's labeled boxes would probably arrive on the wrong floor before lunch.
+
+The lobby looked like everybody else's family had brought the contents of an entire house too. Fathers carried televisions toward the stairs while mothers stood beside piles of bedding, plastic drawers and cases of bottled water. Student volunteers in Peach State shirts shouted directions over the noise. Somebody near the front desk had lost a room key before even making it upstairs, and another girl was crying into her mother's shoulder beneath a banner stretched across the far wall that read **WELCOME, CLASS OF 2011.**
+
+Esme had seen the same banner during orientation in July. It looked different now with a room key looped around her wrist and five flights of stairs between her and everything still sitting in Michael's car.
+
+Room 507 had cinderblock walls painted a color Peach State probably called cream because *old oatmeal* would have looked bad in the housing brochure. Her roommate, Tara, had checked in the night before and already covered the other half with a floral comforter, framed photographs and a pink dry-erase board that said **WELCOME ESME!** even though they had only spoken twice on the phone. Esme liked her immediately for not making move-in morning awkward.
+
+By the second trip upstairs, Michael had recruited a boy from the fourth floor to help with the mini-fridge. Nia abandoned her cardigan somewhere inside the room, Jordan finally appeared with the box marked **BATHROOM**, and Micah arrived behind him carrying a lamp Esme had forgotten they even bought. Once everything was upstairs, Michael plugged in the mini-fridge, changed his mind about where it should go and unplugged it again while Nia fought with an extra-long fitted sheet that kept snapping off one corner of the mattress.
+
+Esme handled the books herself. Most fit on the shelf above her desk if she stacked some sideways, which she hated, but there were too many to argue with physics. The photographs came last: Michael at the restaurant with flour across one shoulder, Nia and the boys at Christmas, Marissa and Alexis after prom, one of Esme and her father at graduation with both of them laughing.
+
+The good photograph from her seventeenth birthday went near the end. The other stayed inside the blue album beneath her bed, where she had put it before Michael carried the last box upstairs. Nobody saw the album, which saved Esme from having to explain why she had brought it when almost everything else she cared about from Tuscany stayed at home. The shoebox of winter prints had stayed at home too. She had held it over the open suitcase for a full minute in her bedroom, the pool covered for winter and the olive grove under frost and Lena's empty window seat, and then put it back under the bed where it had always lived. Some things belonged to the house.
+
+Michael crouched beside her desk with an Ethernet cable in one hand and the campus internet instructions in the other. Peach State's move-in packet included three pages about residence hall network access, an entire sheet on meal plans and more warnings about candles than Esme thought any group of college students realistically needed. She had read the packet twice. Michael appeared to be reading this part for the first time.
+
+"You got the right cable?"
+
+"It's in your hand."
+
+"I'm asking if this is the right one."
+
+"It came in the bag marked computer."
+
+Michael glanced at the bag, then at her. "You could've just said yes."
+
+Esme let it go and went back to arranging the pictures.
+
+Her Motorola buzzed across the desk before he finished connecting the laptop. Ginevra wanted photographs immediately, beginning with the room number and ending with the view from the window. She wanted to know whether the closet was really as small as it looked in the housing brochure, why Esme had ignored the blue duvet she mailed from Florence and whether Peach State allowed students to repaint their rooms because the cinderblock looked depressing through the grainy picture Esme sent from her phone.
+
+Nia turned toward the wall and covered her mouth while Esme walked to the window.
+
+Ginevra eventually asked whether Michael remembered the small desk lamp she ordered. Esme told her it was already there, and her mother told her to thank Michael, even though he was close enough to hear the whole conversation. Michael picked up the lamp and moved it several inches to the left without looking at either of them.
+
+Esme laughed before she could stop herself.
+
+"I'm proud of you, tesoro," her mother said, and Esme looked down at the quad.
+
+Students moved between residence halls five stories below them carrying pillows, storage bins and whatever their parents had refused to leave in the car.
+
+"Thanks, Mom."
+
+Ginevra made her promise to call after the first day of classes and hung up. Michael said nothing about the conversation. Instead, he finished running the Ethernet cable behind Esme's desk, and by the time he stood again, Nia had stuffed the last empty shopping bag into the trash can and declared the room finished enough.
+
+Saundra had already called twice from downstairs because she found somewhere to eat and refused to lose the table waiting on them. Michael still walked around Esme's half of the room checking the window latch, the outlets and the mini-fridge one last time before picking up his keys.
+
+"You know you can still come home."
+
+"I haven't even spent the night yet." Esme shook her head. "I'll be fine, Dad. I promise."
+
+Nia pushed his keys into his hand. "Come on before you ask her if she packed a fire extinguisher."
+
+Michael looked offended enough that Esme knew the thought had crossed his mind.
+
+They all walked toward the stairs together. Nia went ahead to call Saundra back, leaving Michael and Esme beside the landing, with people carrying boxes in both directions.
+
+Her father hugged her before she could make a joke about it. He had hugged her plenty of times before, but something about standing outside Room 507 with her name taped to the door made this one feel different. His hand stayed against the back of her head for a second before he let go.
+
+"They'd have wanted to be here too," Michael said, nudging her. "Call them. And call me. Don't wait three hours after something happens. Call me as soon as it's done."
+
+Esme's stomach tightened before she could stop it.
+
+Michael noticed. He always did.
+
+Neither of them said Lena's name.
+
+Nor Clarke's.
+
+Nia called from the next landing, saying Auntie Saundra had threatened to leave them, which finally gave Michael a reason to stop standing there. He kissed Esme's forehead, told her again to call and followed Nia down the stairs.
+
+Esme stayed beside the railing until she could no longer hear his voice.
+
+When she went back inside, Room 507 felt larger without everybody in it. Tara was still at lunch with her parents. Flattened boxes leaned against the closet. Her laptop sat connected on the desk beside the orientation papers, and the photographs above it made the room familiar enough to feel strange.
+
+She sat down and turned on the computer.
+
+AIM connected automatically.
+
+**CReed89** appeared halfway down her buddy list, online at four-thirty in the afternoon Atlanta time, which meant it was ten-thirty at night in Florence and he was probably home.
+
+She opened Facebook instead.
+
+Peach State had been the last campus she visited.
+
+The week after graduation disappeared beneath deadlines Esme should have handled months earlier. May 1 had come and gone while she was still comparing schools on spreadsheets and pretending another week would make the answer more obvious. Her counselor spent the end of senior year calling admissions offices with her. One school refused to extend the deadline. Two gave her a little more time. Peach State's rolling admissions process bought her until mid-June.
+
+Ginevra hated all of it. Michael mostly stayed out of it, which somehow irritated Esme more.
+
+On Tuesday, June 5, he drove her across Atlanta and dropped her near Peach State's admissions building. He offered to take the tour with her, but Esme wanted to walk it alone, so Michael handed over a bottle of water and told her where he would be parked when she finished.
+
+The campus was bigger than she expected and older too. Red-brick buildings sat behind trees large enough to shade entire sections of sidewalk. Students crossed the quad in shorts and college T-shirts while the tour guide walked backward explaining meal plans and freshman parking rules. Near the student center, a group of girls had taken over two benches and most of the sidewalk between them. One sat on the back of the bench with her feet where people were supposed to sit. Another had a laptop open across her thighs. Somebody laughed loud enough to carry across the quad, and when the tour approached, the student ambassador simply walked around them.
+
+Nobody apologized.
+
+Nobody looked twice, either. Esme waited for it out of habit, the quick look and then the second one that lasted a little longer, and it didn't come. Not from the girls on the bench, and not from the tour guide, and not from the woman at the admissions desk who had taken her name without asking her to spell it twice.
+
+Later, Esme remembered the Black professor walking out of the English building with three books under one arm and the girl in the bookstore wearing a Peach State shirt over a long skirt with braids that reached halfway down her back. She remembered the bulletin board layered with flyers for student organizations and stopping long enough to read one for the Black Student Union. Michael was parked beneath a tree when she finished. Esme climbed into the passenger seat with the admissions packet folded across her lap, and before he even pulled away from the curb she told him she thought she wanted to go there.
+
+Michael looked at her, then at the packet. "Okay."
+
+Esme waited for whatever came after, but Michael put the car in gear and asked if she wanted tacos.
+
+They ate twenty minutes later. Esme called admissions from the restaurant parking lot and submitted her enrollment deposit that evening.
+
+Ginevra took it better than expected.
+
+Franca did not.
+
+Nia came over with a Peach State shirt despite being morally opposed to Esme choosing any Atlanta school other than Spelman. Lena sent enough exclamation points to qualify as enthusiasm, and Clarke sent one AIM message that Esme read twice before answering.
+
+**CReed89:** knew you'd figure it out, walker.
+
+For about three weeks, everything felt handled.
+
+Then June kept moving.
+
+The passport stayed in the second drawer. Esme saw it every time she reached for the scarf she slept in. By the middle of June, Ginevra stopped asking whether she was coming to Tuscany and started asking for dates. Olivia emailed to ask what Esme wanted for dinner the first night. Lena sent a picture of Villa Reed's pool after Aurelio had it cleaned for summer and told Esme they could still take the Rome trip they had talked about if she arrived before the end of the month.
+
+Esme answered everything except what mattered.
+
+She bought towels for Peach State, went to orientation, worked at Michael's restaurant whenever somebody called out and let Nia convince her she needed far more dorm storage than one person could reasonably use. Tuscany stayed on the edge of it all because, for seven summers, leaving Atlanta required almost no thought. Her suitcase came down from the closet. Michael drove her to the airport. Ginevra met her on the other side. School ended and Italy started.
+
+This year, every time Esme pictured packing, something in her resisted.
+
+She wanted to stay in Atlanta. The answer sounded simple once she admitted it to herself. She wanted to help Michael with the restaurant and go to orientation without counting backward from an international flight. She wanted time to figure out what she was taking to Peach State and what she could leave at home. She also wanted one summer where nobody in Tuscany already knew what the next version of Esme was supposed to look like.
+
+Esme rarely let herself finish that thought. When she did, the rest of it was harder. She wanted one summer that wasn't arranged around a chair. Lena across the table. Clarke beside her now, since last August, without anybody saying why. She did not know what she would be walking back into, and she did not know how to find out without asking, and asking meant one of them would have to answer.
+
+Near the beginning of July, Lena texted asking for her flight number.
+
+For seven years, Lena had asked for it in May. Some years she'd asked in April. This year she had waited until July and given a reason, because Olivia wanted to get them all tickets for some wine event. Esme understood that Lena had held the question as long as she could and then dressed it up so it could be asked. Esme read the message behind the host stand at Michael's restaurant during the slow hour between lunch and dinner, with the reservation book open beneath one hand and her Motorola in the other.
+
+Five minutes later, she finally typed.
+
+**Esme:** I'm not coming this summer. I think I'm staying here until school starts.
+
+The phone rang almost immediately.
+
+**Lena.**
+
+Esme watched it ring until the call ended.
+
+It started again.
+
+Clarke called after that.
+
+She let his go too.
+
+The first message from Lena asked whether she was serious. Another followed before Esme could decide how to answer, asking why she had waited until July to tell anybody. Clarke sent one message.
+
+**Clarke:** okay. have fun, es.
+
+Four words.
+
+He had never called her Es before. It was Walker, or Tinkerbell, or Esme when something was wrong. Esme didn't know what *Es* meant, which was the problem.
+
+Esme stared at the message until Michael called her name from the kitchen.
+
+Lena kept texting. The message Esme remembered without needing to pull it back up came almost forty minutes later.
+
+**Lena:** Clarke got to see you graduate and I haven't seen you in a YEAR and you told me in a TEXT Esme. A TEXT. What the HELL is wrong with you?
+
+Esme called her that night. The conversation lasted thirty-two minutes and solved almost nothing. Lena yelled for the first ten, in English and then in Italian when English stopped being fast enough, and Esme let her, because she had not heard Lena yell like that since a festival when they were eleven and twelve, and some small, terrible part of her was glad the loud girl was still in there. Then Lena stopped yelling, which was worse.
+
+By August, they were speaking again because Lena had never been good at staying silent when she had something to say. Their calls carried school, family, gossip, and every other subject that could fit between two people refusing to touch the one thing still sitting between them.
+
+Her nineteenth birthday was the first one in Atlanta since she was eleven. Michael made a lemon pound cake at six in the morning and didn't make a speech about it. At what was two in the afternoon in Atlanta, a text came from Lena: *Buon compleanno.* Nothing else. Esme read it on the back steps beside her mother's rosemary and didn't answer until that night.
+
+Clarke made the distance easier.
+
+He simply stopped reaching.
+
+He wished Esme happy birthday. He congratulated Michael when the restaurant expansion opened. He answered one question about a photograph Esme wanted printed from the previous summer. The AIM conversations that used to start because one of them happened to be online disappeared completely.
+
+Esme understood why.
+
+Understanding did nothing useful with it.
+
+Back in Room 507, Clarke's screen name stayed on her buddy list until the little icon beside it changed to away.
+
+Tara returned before Esme decided whether she had been waiting for that.
+
+She came through the door with two shopping bags, saying her mother had bought enough snacks to last until Thanksgiving. Esme closed the laptop and helped her find somewhere to put them.
+
+By Thursday of their first week, Room 507 no longer felt temporary.
+
+Tara had developed a habit of leaving shoes beneath Esme's desk. Esme had started keeping her student ID on the hook beside the door because she forgot it twice in three days. The freshman composition professor believed eight in the morning was an acceptable time for discussion, the dining hall put cheese on things nobody requested cheese for and nobody on the fifth floor knew how to keep the bathroom floor dry.
+
+The elevator was still broken.
+
+Tara filed a maintenance complaint Tuesday. Esme added her name Wednesday after climbing five flights with two textbooks, a laptop bag and groceries from the campus store. The complaint didn't fix anything, but writing a second paragraph about accessibility made Esme feel slightly better.
+
+Friday afternoon, Tara was changing for dinner with girls from her biology lab while Esme stood beside the bed sorting laundry. The hallway carried music from several rooms and the sound of somebody arguing with a parent over the phone.
+
+Esme made a pile of whites and another of everything else.
+
+Michael did most of the laundry at home because Esme ruined one of his shirts with bleach freshman year and never regained full privileges. Ginevra sent half her clothes out. Neither parent had prepared her for residence hall washing machines.
+
+Tara put on one earring and pointed toward Esme's desk. "You have detergent?"
+
+Esme followed her finger to absolutely nothing. "Apparently not."
+
+"There's a vending machine downstairs." Tara laughed, grabbed her purse and told Esme she would be back late. Esme watched the door close behind her, then looked at the laundry bag.
+
+The basement was five floors down.
+
+At least the elevator had already lowered her expectations.
+
+She made it to the third-floor landing before a basket came around the corner high enough to hide the person carrying it.
+
+"Shit—sorry."
+
+Esme flattened herself against the wall while a sock bounced from the basket and landed two steps below her.
+
+The girl carrying it lowered the basket. Copper-brown curls piled on her head, held up by a scarf that had given up trying to contain them. Freckles crossed her nose and cheeks. She wore cutoff shorts, an oversized Peach State shirt and one flip-flop.
+
+Esme glanced at her bare foot.
+
+The girl followed her attention. "That is also somewhere downstairs."
+
+Esme picked up the sock and handed it over. "Rough day?"
+
+"You have no idea." She shifted the basket onto one hip and held out her free hand. "Riley."
+
+"Esme."
+
+"You're 507."
+
+Esme frowned.
+
+"I'm two doors down. 504. I've seen you." Riley adjusted the basket and kept moving upstairs, then paused two steps above Esme. "Only one washer works, by the way. And it only takes quarters."
+
+Esme looked down at the laundry bag.
+
+No detergent.
+
+No quarters.
+
+Riley saw the answer on her face and laughed. "Come on."
+
+Room 504 looked like Riley had lived there all summer. Pictures covered the wall above the desk. A purple comforter hung halfway off the bed. Textbooks shared the windowsill with hair products and several small crystals Esme did not know enough about to identify. A paperback copy of *Their Eyes Were Watching God* held the door open.
+
+Riley dropped the basket beside her bed and pulled detergent from beneath the desk. "My mother packed cleaning supplies like Peach State doesn't believe in stores."
+
+Riley handed her the bottle, then dug through a desk drawer until she found a roll of quarters. Esme reached for her purse, but Riley waved her off.
+
+"Pay me back later. I know where you live."
+
+"We met thirty seconds ago." Esme laughed despite herself.
+
+"And now I know your finances too."
+
+A framed photograph beside the lamp showed Riley several years younger, standing between a tall Black man and a white woman with bright red hair. All three were near water, Riley squinting in the sunlight while her father held one hand above her forehead to block it.
+
+Esme nodded toward the frame. "Your parents?"
+
+"Yeah. Dad's from New Orleans. Mom grew up in Scotland."
+
+Esme looked from the picture to Riley before she could stop herself.
+
+Riley caught it. "You can ask."
+
+"I wasn't going to."
+
+"You were."
+
+She had been. Esme heard it a second too late: the quick look, then the second one that lasted a little longer. She had been on the other end of that look her entire life, in grocery stores and parent-teacher conferences and at the edge of a pool in Tuscany. She had just done it to somebody else inside of a minute. Her face went hot.
+
+Riley didn't seem to need anything from her about it. She found her missing flip-flop beneath the desk and put it on, then opened the closet and started pushing hangers aside. "You doing anything tonight?"
+
+"Laundry."
+
+"I mean after."
+
+"I have reading."
+
+"There's a party off campus. Couple girls from the floor are going."
+
+Esme had heard about it. The Facebook invite made its way through half of Adams Hall by Wednesday, followed by messages from people she didn't know explaining where freshmen should park, where they absolutely should not park and which house everybody was actually going to because three different parties had apparently gotten confused online.
+
+"I don't know."
+
+Riley shrugged. "Okay."
+
+No argument followed. She pulled a green top from the closet and held it against herself while Esme stood there with detergent in one hand and a roll of quarters in the other.
+
+"What time?" Esme asked.
+
+"Nine."
+
+"I'll see."
+
+"Cool. If you come, knock. If you don't, I'm stealing my detergent back tomorrow."
+
+Esme promised to return it before then and finally went downstairs.
+
+The washing machine sounded like it was trying to remove itself from the wall, but it worked. Esme sat on the machine beside it while hers moved through the rinse cycle and called Michael.
+
+He wanted to know about classes, whether she had eaten and if the mini-fridge was cold enough. Esme told him the elevator still did not work. Michael threatened to fix it himself until Esme reminded him that owning a restaurant didn't qualify him for university maintenance. He eventually agreed and moved on to asking whether she needed groceries when the washer switched cycles. Esme promised she had food, told him she loved him and hung up before he found another problem to solve.
+
+Lena's name sat three places below his in her contacts.
+
+Esme stayed there through most of the spin cycle before pressing call.
+
+Lena answered on the fourth ring.
+
+"Hey."
+
+"Hey." Italian carried through the background before a door closed.
+
+Esme rested one foot against the opposite washer. "You busy?"
+
+"A little."
+
+"I can call later."
+
+Lena went quiet long enough that Esme knew she shouldn't have offered. "What's wrong?"
+
+"Nothing."
+
+"Esme."
+
+Esme picked at the corner of the detergent label. "I moved in."
+
+"I know."
+
+"I meant to call Saturday."
+
+"You meant to call me in June too."
+
+The washing machine shook beneath Esme. She tightened her grip around the phone.
+
+"I know."
+
+Lena didn't yell. Esme almost wished she would.
+
+After a few seconds, Esme told her about the fifth-floor room and the broken elevator. Lena asked who Tara was. Esme explained. Lena asked what Tara's side of the room looked like and how many hooks were on the back of the door and whether the closet had a shelf, and Esme answered every question, because she knew exactly what Lena was doing. Lena was building the room in her head so she would know where Esme was. From there, the conversation moved through classes, dorm food, Lena's plans for the fall and Aurelio driving everybody insane at the vineyard. Olivia had apparently bought something for Esme's room and kept asking when she could mail it.
+
+They stayed on the phone almost twenty minutes.
+
+Esme hadn't asked about Clarke once.
+
+Lena hadn't offered.
+
+The dryer finished twenty minutes later. Esme carried her clothes upstairs, returned Riley's detergent with the unused quarters and found Tara still gone.
+
+It was eight-twenty.
+
+She stood in front of her closet for a minute, looking at the reading she had stacked on her desk, then she changed clothes. Riley knocked a little after nine wearing jeans, gold hoops and the green top from earlier. Her curls were down now, filling most of the space around her shoulders.
+
+Esme had changed into dark jeans and a black top she'd owned since senior year. Her hair had spent the day fighting Atlanta humidity and won sometime around three, so she pulled it into a high ponytail and left the curls alone. Riley stepped inside long enough to use Esme's mirror. Her attention passed over the row of products on the dresser before she picked up one jar.
+
+"You put this through your whole head?"
+
+Esme took it back. "Yes."
+
+Riley read the label again.
+
+"What?"
+
+"I have opinions."
+
+"Keep them."
+
+Riley did, mostly. She pulled a small bottle of curl cream from her purse and placed it beside Esme's products. "Try that whenever you wash it again."
+
+Esme read the label. "Why?"
+
+"Because I have opinions."
+
+Esme looked at the bottle a little longer than she meant to. For eighteen years, people had had opinions about her hair. Her mother's had come in Italian bottles and three-hour appointments. Her grandmother's had come with a hand smoothing it down. Her father's had come with a dish towel on the kitchen floor and an apology every time the comb caught. Nobody had ever handed her an opinion that was only about helping it do what it already wanted.
+
+Esme left the bottle where Riley put it, grabbed her student ID and followed her into the hallway.
+
+Campus looked different after dark. People filled the quad without backpacks. Music came through open residence hall windows. Girls sat on the low brick wall near the student center in heels nobody had worn to class, and someone had dragged a speaker outside one of the residence halls despite the RA standing nearby, exhausted by it.
+
+Riley knew people already. A girl from sociology hugged her near the library. Two guys outside the student center called her name. Another girl joined them long enough to confirm they were still going to the same party.
+
+Esme mostly listened.
+
+A flyer taped to a student-center column caught her attention as Riley finished talking.
+
+**BLACK STUDENT UNION**
+
+**GENERAL BODY MEETING**
+
+**WEDNESDAY — 7 PM**
+
+Flyers for gospel choir, the Caribbean Student Association and the campus newspaper crowded around it. Esme read the BSU flyer twice, pulled one of the little tabs from the bottom and slipped it into her purse before Riley returned.
+
+The party was close enough to campus that they walked. By the time they reached the house, people covered the porch and spilled down the steps. Music moved through the open windows, loud enough for Esme to recognize Timbaland before they got through the door.
+
+Inside was hotter.
+
+Somebody near the kitchen handed Riley two plastic cups. Riley smelled one and passed the other to Esme, who did the same before they both quietly returned the drinks to the table.
+
+The living room had been cleared enough for people to dance. Someone near the stairs tried to teach a group the Soulja Boy dance while three others shouted conflicting instructions. A girl wearing a Peach State tank top grabbed Riley by both hands and pulled her into the room before anybody finished introductions.
+
+Esme followed because standing alone near the kitchen seemed worse.
+
+She learned several names over the next hour and forgot some immediately. Two people were in her freshman composition class. A girl named Kendra complimented her earrings, then disappeared into another conversation. Somebody complained about the dining hall. Someone else had already changed majors, even though classes had started four days earlier. At some point, Esme realized she had gone almost an hour without answering a single question about her future, and nobody in the room had any idea which version of her was supposed to walk through the door.
+
+The walk back to Adams Hall was quieter than the walk over. Riley carried her shoes for half of it because her feet hurt, and Esme had no sympathy after warning her about the heels before they left.
+
+The elevator was still broken when they got back, so they climbed five flights slowly enough that neither of them bothered pretending the stairs were fine.
+
+Outside 504, Riley stopped to catch her breath. "Dining hall tomorrow?"
+
+"What time?"
+
+"Ten."
+
+"Okay."
+
+Riley nodded toward Esme's room. "Night."
+
+"Night."
+
+Esme continued two doors down while Riley went inside.
+
+Tara was asleep when she entered 507. Esme changed quietly, grabbed her laptop and carried it into the hallway so the startup sound would not wake her.
+
+AIM connected.
+
+Lena was away.
+
+Clarke was online.
+
+His screen name sat exactly where it always had on her buddy list. It was almost six in the morning in Florence. Either he hadn't slept or he'd gotten up early, and Clarke had never done either without a reason. Esme sat on the hallway carpet with her back against the cinderblock and did the math twice, because she was good at it, and because the answer didn't tell her anything.
+
+Esme opened the message window and watched the cursor blink. She could have told him about the elevator. He would have said something unhelpful about stairs being good exercise. She could have told him she went to a college party or that somebody named Riley had already decided Esme's hair products were wrong. She could have told him Peach State felt different than she expected, that she had read a flyer twice and kept the tab, that for one whole hour nobody had asked her where she was going.
+
+Someone farther down the hall opened a door, let music spill into the corridor, then closed it again.
+
+Esme closed Clarke's window without typing anything.
+
+Facebook still had Riley's friend request waiting, so she accepted it before shutting down the laptop and going back inside.
+
+Her Peach State ID hung from the corner of her desk where she had dropped it earlier that week. The photograph was terrible. Her eyes were half closed, her curls had expanded from orientation-day humidity and **ESMERELDA G. AMATTO-WALKER** barely fit across the bottom.
+
+Esme moved it to the hook beside the door where she would actually remember it in the morning.
