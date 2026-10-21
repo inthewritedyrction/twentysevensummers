@@ -309,6 +309,7 @@ Beside her, Lena started telling her about the bookshop again. Clarke interrupte
 Esme listened.
 
 For now, she kept her feet in the pool as she forced her lip to stop trembling.
+
 # 2. everything
 
 *clarke — the first summer*
@@ -564,6 +565,7 @@ The click was too small to carry over Lena. Esme didn't turn around.
 He let the camera drop back against his chest and swam over to tell them they had the directions to the bookshop wrong, which they did. He didn't mention the picture. It was on the roll now, between a bad one of the cypress trees and whatever he took next, and it belonged to him, the way the rest of the roll did. He hadn't decided yet whether she would ever get to see it.
 
 She was staying all summer. He had time.
+
 # 3. not yet
 
 *lena — the first summer*
@@ -806,7 +808,7 @@ Esme shrugged, but Lena had known her long enough now to recognize the differenc
 
 Lena understood a little bit of what Esme meant. She'd watched adults ask Clarke about his "real parents" while Aurelio and Olivia were standing right beside him. Kids at school still made jokes about his accent even though most of them had known him for years. Girls in Lena's class had called her loud, dramatic, and too much more times than she could count.
 
-Even while she was thinking it, though, Lena could feel it wasn't the whole thing. Nobody had ever looked at Lena and then at Annemarie to check. Nobody had ever been surprised when Lena talked, only sorry. She had just spent the whole fight with Emilo yelling that Esme was Italian, and Esme was telling her that being Italian wasn't what people were looking at. Lena hadn't been fighting for the wrong thing, exactly. Just not the whole thing. She didn't know yet what the rest of it was. She only knew she wanted to the next time.
+Even while she was thinking it, though, Lena could feel it wasn't the whole thing. Nobody had ever looked at Lena and then at Annemarie to check. Nobody had ever been surprised when Lena talked, only sorry. She had just spent the whole fight with Emilo yelling that Esme was Italian, and Esme was telling her that being Italian wasn't what people were looking at. Lena hadn't been fighting for the wrong thing, exactly. Just not the whole thing. She didn't know yet what the rest of it was. She only knew she wanted to know it the next time.
 
 She reached for Esme's hand. "People are stupid."
 
@@ -951,6 +953,7 @@ Esme caught up beside her, grinning. "Oh, you're on, Cavalcanti."
 They took off through the crowd, and Lena let August stay where it belonged—weeks away. She still had Esme now, and she wasn't ready to think about goodbye.
 
 At least, not yet.
+
 # 4. on its head
 
 *esme — the sixth summer*
@@ -1372,6 +1375,7 @@ Esme looked toward the doorway he had disappeared through. Somewhere upstairs, L
 Esme didn't know yet what she was going to tell her.
 
 Three days before seventeen, and suddenly everything about summer was turned right on its head.
+
 # 5. happy birthday, walker
 
 *esme — the sixth summer*
@@ -1873,6 +1877,7 @@ Clarke had moved a few feet away to take another picture. He caught her staring 
 Three days ago, Esme would have complained.
 
 Tonight, she smiled back.
+
 # 6. the list
 
 *lena — the seventh summer*
